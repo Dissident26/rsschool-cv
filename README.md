@@ -1,2 +1,2 @@
-https://dissident26.github.io
+Dissident26.github.io
 
