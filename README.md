@@ -1,1 +1,2 @@
-https://dissident26.github.io/rsschool-cv/cv
+https://dissident26.github.io/FD2-72-20
+
